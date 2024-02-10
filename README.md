@@ -1,4 +1,4 @@
-### Hi I'm Puriza , developer
+### Hi I'm Puriza , game developer
 
 🛠️ Stacks
 
